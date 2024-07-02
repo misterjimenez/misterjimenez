@@ -1,4 +1,9 @@
-## Hi there 👋
+## Hello there! 
+
+I play games, recently some Star Wars.
+My Steam profile: https://steamcommunity.com/id/pwnedbyphysics/
+
+Also watch anime sometimes: https://myanimelist.net/animelist/Bj1m
 
 <!--
 **misterjimenez/misterjimenez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
